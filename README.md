@@ -1,0 +1,4 @@
+Disruption--Leverage-and-MBaaS--Softbank-is-the-Telco-Platform-of-the-Future
+============================================================================
+
+If you look at the consolidated revenue chart, below, Sprint catapults the combined entity to almost double Softbank’s previous revenue to $80 Billion USD. This is an absolute revenue engine. The scale synergies are mostly illusory as we are talking about cross border operations, but the combined entity will have a high degree of free cash flow and produce significant leverage in the most important mobile markets in the world, Japan and USA. These two markets have the highest ARPU (Average Revenue Per User) by far of any country. China activates more IOS and Android devices per day than the US, but the installed base of these platforms is still bigger in the US.
